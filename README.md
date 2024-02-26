@@ -1,1 +1,0 @@
-# kiniyumo.github.io
